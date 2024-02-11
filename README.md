@@ -1,1 +1,1 @@
-This is Gibran Nawaz's official staff list. Everyone here is on my payroll. 
+This is Gibran Nawaz's official staff list. Everyone here is on my payroll. All Security have contracts. 
