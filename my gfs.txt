@@ -74,5 +74,6 @@ Aurelia Marcus
 Angelina Stroganova
 Georgia
 Adriana
+Vice
 
 Theres more I'll add later. 
