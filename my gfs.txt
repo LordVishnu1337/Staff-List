@@ -23,7 +23,6 @@ Lena Gerke
 Ruta
 Kurumi Shiki
 MATTN
-
 Choa
 Soeun
 Jihyo
@@ -84,5 +83,6 @@ Mila Kunis
 Delaney Jane
 Ava Max
 Onda
+Ali
 
 Theres more I'll add later. 
